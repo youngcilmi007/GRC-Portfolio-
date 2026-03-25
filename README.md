@@ -88,4 +88,4 @@ Through automation, integration, and continuous improvement, InnovateTech is bui
 
 **Prepared by:**  
 *InnovateTech GRC Strategy Team*  
-*(Drafted for portfolio demonstration by Cilmi – GRC & Audit Analyst)*   
+*(Drafted for portfolio demonstration by ABBAS – GRC & Audit Analyst)*   
